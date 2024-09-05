@@ -1,4 +1,4 @@
-# 💫🇺🇸  សូរស្តី, ខ្ញុំបាទ ឈ្មោះ ហៃ សំបូរ 
+# 💫🇰🇭  សូរស្តី, ខ្ញុំបាទ ឈ្មោះ ហៃ សំបូរ 
 # 💫🇺🇸  Hello, My name is Sombo Hai :
 # 💫🇰🇷  안녕하세요, 제 이름은 하이 솜보입니다: 
 🔭 I’m currently working on<br>👯 I’m looking to collaborate on<br>🤝 I’m looking for help with<br>🌱 I’m currently learning<br>💬 Ask me about<br>⚡ Fun fact
